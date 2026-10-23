@@ -1,0 +1,1 @@
+pierwyszy pjoekt git.
